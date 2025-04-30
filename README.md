@@ -23,7 +23,7 @@
 ## 📫 Socials
 - LinkedIn: [linkedin.com/in/ryan-chung-8475a7210](https://www.linkedin.com/in/ryan-chung-8475a7210/)  
 - X: [@ryan_chung](https://x.com/ryan_chung)  
-- Medium: [[medium.com/@ryan.chung](https://medium.com/@ryan.chung](https://medium.com/@seokwoo.chung130))
+- Medium: [medium.com/@ryan.chung](https://medium.com/@ryan.chung](https://medium.com/@seokwoo.chung130))
 
 ---
 
